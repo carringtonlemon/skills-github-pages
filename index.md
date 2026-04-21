@@ -1,3 +1,3 @@
 ---
-title: Welcome to my blog!
+Carrington: The Designer You Need 🤙🏾
 ---
